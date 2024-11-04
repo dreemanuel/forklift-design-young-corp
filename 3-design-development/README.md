@@ -16,10 +16,10 @@
 
 
 
-
+### Work Done:
 1 design concept base - idr1,275k
-add 1 - idr700k
+add 1 concept - idr700k
 
-
+add 1 illustration view (top) for 2 concepts - idr300k
 
 1,975

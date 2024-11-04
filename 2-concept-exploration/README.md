@@ -15,7 +15,7 @@
 - [ ] Additional revisions ***+$10 / IDR 150k +1 day extra delivery time per revision**
 
 
-
+### Work Done:
 9 sketches
 5 base - idr975k
 add 6x2 sketches - idr450k
